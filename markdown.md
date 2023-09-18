@@ -15,3 +15,5 @@ Objetivos de este año:
 
 Para relajarse un rato:
 [Relax music](https://youtu.be/_kT38XB1YHo?si=nPS-wdCoNMkVulO_)
+
+![Mi mascota<3](
