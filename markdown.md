@@ -16,4 +16,12 @@ Objetivos de este año:
 Para relajarse un rato:
 [Relax music](https://youtu.be/_kT38XB1YHo?si=nPS-wdCoNMkVulO_)
 
-![Mi mascota<3](
+![Mi mascota <3](bsc)
+
+| Día | Cantidad de deberes |
+| ---------- | --------- |
+| Lunes | Muchos |
+| Martes | Muchos |
+| Miércoles | Todavía más |
+| Jueves | Muchísimos |
+| Viernes | Demasiados |
