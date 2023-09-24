@@ -18,7 +18,7 @@ Para relajarse un rato:
 
 [Link al Readme](https://github.com/KTKuri/Repo_IAW_Eric/blob/main/README.md)
 
-![Mi mascota <3](bsc)
+![Mi mascota <3](bsc.jpg)
 
 | Día | Cantidad de deberes |
 | ---------- | --------- |
