@@ -16,6 +16,8 @@ Objetivos de este año:
 Para relajarse un rato:
 [Relax music](https://youtu.be/_kT38XB1YHo?si=nPS-wdCoNMkVulO_)
 
+[Link al Readme](https://github.com/KTKuri/Repo_IAW_Eric/blob/main/README.md)
+
 ![Mi mascota <3](bsc)
 
 | Día | Cantidad de deberes |
